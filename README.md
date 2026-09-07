@@ -1,6 +1,6 @@
 <p align="center"> HELLO! im ky, but u can also call me kade or kyky !!<br> 14, blk, i luv card games<br> im cool i promise</p>
 <div align="center"><img src="https://files.catbox.moe/r46uqd.gif">
-<div align="center"><a href="https://swordsofrevealinglight.atabook.org">ata</a> <a href="https://fatalviolence.straw.page">strawpage</a>
+<div align="center"><a href="https://swordsofrevealinglight.atabook.org">ata</a> <a href="https://fatalviolence.straw.page">strawpage</a> <a href="https://rentry.co/crystalbeasts">rentry</a>
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cay2g7dqnrkptgyp7qhjmiq3ue&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=00e1ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
