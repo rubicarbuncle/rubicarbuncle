@@ -1,4 +1,4 @@
-<p align="center"> HELLO! im ky, but u can also call me kade or kyky !!<br> 14, blk, i luv card games<br> im cool i promise</p>
+<p align="center"> HELLO! im ky, but u can also call me kade or kyky !!<br> 14, blk, magical girl luver<br>dont b afraid to talk to me nd bmf !!</p>
 <div align="center"><img src="https://files.catbox.moe/bwtt10.gif">
 <div align="center"><a href="https://swordsofrevealinglight.atabook.org">ata</a> <a href="https://fatalviolence.straw.page">strawpage</a> <a href="https://rentry.co/crystalbeasts">rentry</a>
 <p align="center">im rarely on anymore cuz of irl stuff #sorry ky is busy.</p>
